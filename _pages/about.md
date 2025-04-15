@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/92af7bf3-07e1-497e-90c9-34d672978704)---
+---
 permalink: /
 title: "Heng (Mac) ZHANG"
 author_profile: true
