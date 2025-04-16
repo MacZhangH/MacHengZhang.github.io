@@ -46,7 +46,7 @@ I’ve worked on various international economics and business issues under the s
 
 Feel free to reach out:
 
-- Email: kmmacz@outloo.com  
+- Email: kmmacz@outlook.com  
 ---
 
 *Thank you for visiting!*
